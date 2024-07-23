@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Bruno Brito V Dantas
+- 👀 I’m interested in learn
+- 📫 How to reach me on my e-mail: britobruno2008@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I am very cooperative and a good project leader
